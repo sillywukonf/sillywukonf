@@ -5,7 +5,8 @@ im genderfluid + pansexual + asexual 😼 !!
 ୧ ‧₊˚ 🍮 ⋅ ☆˚ ༘ ೀ⋆｡˚do not interact : : mean ppl, sexualizers (ANDDD I MEAN BY THAT like intense sexualizin,, dont do it too much around me), insp/copy😒, racists, homophobics, zoophiles p3dos anything like those dni !!!!!!!!! pee yew
 •|☆✨🌕☆•|hobbies : : exploring, drawing, journaling, collecting all of those funs stuffffffffffffff !!
 ˙ . ꒷ 🍰 . 𖦹˙— DISCLAIMERRRSS RAH : : Im mean to you as a jokeee err often suggestive jokes PLEASE do tell me if your not comfy w it
-˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ MORE INFO IN MY PRONOUN PAGE / STRAWPAGEEE YUHH GO CHECK IT OUTT 𓊆ྀི❤︎𓊇ྀ༉‧₊˚.  im just here to push your temper! ♡⸝⸝! ![image](https://github.com/user-attachments/assets/32b09b7d-1ef0-4ca5-8762-0d1ea549ad14)![image](https://github.com/user-attachments/assets/400b8138-23ea-41aa-95dd-26c37331b12a) <-- lit me
+˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ MORE INFO IN MY PRONOUN PAGE / STRAWPAGEEE YUHH GO CHECK IT OUTT 𓊆ྀི❤︎𓊇ྀ༉‧₊˚.  im just here to push your temper! ♡⸝⸝! ![image](https://github.com/user-attachments/assets/32b09b7d-1ef0-4ca5-8762-0d1ea549ad14)![image](https://github.com/user-attachments/assets/5f5d03b0-f817-4317-9191-aed307c698a8)
+ <-- lit me
 
 
  <M, K, A, X3 ILYSMMM MWAH!!<33 /p ![image](https://github.com/user-attachments/assets/03cd78e8-25b6-48f6-aea1-1b6a2a0a863b)
