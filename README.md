@@ -9,4 +9,4 @@ im genderfluid + pansexual + asexual 😼 !! || OH btw, can be annoying but that
  <-- lit me
 
 
- <M, K, A, X3 ILYSMMM MWAH!!<33 /p ![image](https://github.com/user-attachments/assets/03cd78e8-25b6-48f6-aea1-1b6a2a0a863b)
+ <M, K, A, X3 ILYSMMM MWAH!!<33 /p ![image](https://github.com/user-attachments/assets/03cd78e8-25b6-48f6-aea1-1b6a2a0a863b) (also if ANY of yo ur asses take insp / copy of ANY of my skins i will block you, i dont like it when ppl do that shit)
