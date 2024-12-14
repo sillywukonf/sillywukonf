@@ -5,7 +5,7 @@ im genderfluid + pansexual + asexual 😸 !! || OH btw, can be annoying but that
 ୧ ‧₊˚ 🍮 ⋅ ☆˚ ༘ ೀ⋆｡˚do not interact : : mean ppl, sexualizers (ANDDD I MEAN BY THAT like intense sexualizin,, dont do it too much around me), insp/copy😒, racists, homophobics, zoophiles p3dos anything like those dni !!!!!!!!! pee yew
 •|☆✨🌕☆•|hobbies : : exploring, drawing, journaling, collecting all of those funs stuffffffffffffff !!
 ˙ . ꒷ 🍰 . 𖦹˙— DISCLAIMERRRSS RAH : : Im mean to you as a jokeee err often suggestive jokes tell me if your not comfy w it,, also adhd😾 its a real sucker, i call ppl rlly dumb nicknames bc it's BORINGG to call em by their real name (ONLY IF THEIR FINE W IT LMFAOAOA) PLUS i often gift ppl too much gotta spoil my homies🫡🫡, also PLEASE tell me your boundaries when we become friends, i dont wanna make other ppl uncomfyyy 😿!!, awkward at times,,mostly bc my brain wont FUCKING PROCESS WHAT TO SAYYY😒😒😒 ALSO,, IF YA WANNA PLAY RBLX MY USER IS XXGEOGAMERZXX ^_^
-˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ MORE INFO IN MY PRONOUN PAGE / STRAWPAGEEE [image](https://github.com/user-attachments/assets/32b09b7d-1ef0-4ca5-8762-0d1ea549ad14)![image](https://github.com/user-attachments/assets/5f5d03b0-f817-4317-9191-aed307c698a8)
+˚₊‧꒰ა ☆ ໒꒱ ‧₊˚ MORE INFO IN MY PRONOUN PAGE / STRAWPAGEEE (https://github.com/user-attachments/assets/32b09b7d-1ef0-4ca5-8762-0d1ea549ad14)![image](https://github.com/user-attachments/assets/5f5d03b0-f817-4317-9191-aed307c698a8)
  <-- lit me
 
 
